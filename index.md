@@ -8,7 +8,7 @@ ramzingate.com@gmail.com
 
 
 
-Privacy Policy
+### Privacy Policy
 
 Ramzingate built the Ramzingate app as a Free app. This SERVICE is provided by Ramzingate at no cost and is intended for use as is.
 
