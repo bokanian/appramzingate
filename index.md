@@ -4,4 +4,4 @@ Ramzingate cryptocurrency exchange Online Rates has been offering easy cryptocur
 Get Ramzingate  mobile app to follow cryptocurrency exchange Rates within minutes. 
 
 ### Support Email
-info@ramzingate.com
+ramzingate.com@gmail.com
